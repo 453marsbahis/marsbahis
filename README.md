@@ -6,4 +6,4 @@ En popüler sitelerden biri olan Marsbahis adresini değiştirdi. Bu değişikli
 
 Avrupanın en iyi slot sitesi bu aya özel olarak yeni kayıt olan kullanıcılarına oldukça yüksek hoşgeldiniz bonusu veriyor. Üye olarak bu fırsattan yararlanabilir ve en beğenilen oyunları oynamaya hemen başlayabilirsiniz
 
-## [**KAYIT OLMAK VE HOŞGELDİNİZ BONUSU ALMAK İÇİN TIKLAYIN**](https://1.rk1.im/mars1)
+## [**KAYIT OLMAK VE HOŞGELDİNİZ BONUSU ALMAK İÇİN TIKLAYIN**](http://esng.2.vu/mars1)
